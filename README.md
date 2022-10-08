@@ -18,6 +18,11 @@ layout: page
 
 ![Kats Pic](https://lh6.googleusercontent.com/BmFQD33jSri8wywgumlu52v29egWgP_9ZZkv0HJw7Vd9RPSMiyFdwxFA1o1laFWjW8M=w2400)
 
+### Another Pic of my Dad and Paddy
+
+
+![Dad and Paddy](https://lh4.googleusercontent.com/gLtZAh1kZpKAQQECEiqc7BD5fblr51VuwTh6UtnCWduFCS7GnA5XPmLk3R2IbGPNKo8=w2400)
+
 
 ### In Paris, Tx, they made a vertrans memerial for Vietnam, and my father was asked it he would be a model and technical advisor for a statue that was going to be created and displayed at the memorial.
 
