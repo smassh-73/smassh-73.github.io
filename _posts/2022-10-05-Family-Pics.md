@@ -27,6 +27,8 @@ layout: post
 ### Me and Wife
 ![Me and Wife](https://lh5.googleusercontent.com/jAHdrn9ffUq6HWdqX6xsNmAsn6V2bxwGimBt0wBxIJVXS5gfJOvmJ2bp1ROukfGB1fA=w2400)
 ![Me and Wife2](https://lh5.googleusercontent.com/a4myOKLEmB5d9byRB1ALI3d8kGaeoe0g853YP6S2jvrFZF-AcbyPHN-s29Qvtgjoa6s=w2400)
+![Me and Wife3](https://lh3.googleusercontent.com/J2BITDgkKjKzpr5s7D3w5teU6icKlx0yQiAnlq3htrNkgu-B_38Dj20KYKPlgNSYieg=w2400)
+
 
 
 
