@@ -16,7 +16,7 @@ layout: post
 ![Family Photo2](https://lh6.googleusercontent.com/0dnjU3ce6SdlfVg6y24GHplTJlixZY_fFPgME0xrnc7NtujlPjWzHCSLQuJa_vTDAk8=w2400)
 ![Family Photo3](https://lh6.googleusercontent.com/cJD5wBXfbqtBaqgRUUn4xH-iut9AD6w5zaaCdQPBw6ZA_62j-I6aqvfLnNrFCKJz5x0=w2400)
 
-### ______________________________________________________________________________________________
+### ________________________________________________________________________________________
 ### Halloween Pictures
 ![Holiday](https://lh3.googleusercontent.com/9DsFLLRGyErU8kHGak-0ZvLuvKVwphoo1-otrQUpISPISb7n4hxRpRuWDALYQhOgGpo=w2400)
 
