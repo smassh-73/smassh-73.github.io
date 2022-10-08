@@ -6,15 +6,21 @@ layout: page
 
 ## My Father
 
+
 ### My father, Jerry Suitor, was in Vietnam and was a dog handler.
+
 
 ![Jerry Suitor and Paddy](https://lh5.googleusercontent.com/jb3OxidixkahsHpE-yJ__Q_ADtJSA5kWEZnQVl-JXAh68Vnrke0R0_R5-6LcxB-l6iY=w2400)
 
+
 ### Kat (Alexxander in the Father's Day Pic from the kids) made this picture of my father with his artistic talent. I serious have no idea how he did this, but I love it and and appreciate the time and effort he took in creating it!  Looks very simular to the abover picture doesn't it???
+
 
 ![Kats Pic](https://lh6.googleusercontent.com/BmFQD33jSri8wywgumlu52v29egWgP_9ZZkv0HJw7Vd9RPSMiyFdwxFA1o1laFWjW8M=w2400)
 
+
 ### In Paris, Tx,they made a vertrans memerial for Vietnam, and my father was asked it he would be a model and technical advisor for a statue that was going to be created and displayed at the memorial.
+
 
 ![Statue](https://lh3.googleusercontent.com/S2q6GpCJHvPBGkX3meW7HSnSHfDlu8mAMDHJJAohLJNmYX4IeQKRa3YdMrRia9Wjt0w=w2400)
 
