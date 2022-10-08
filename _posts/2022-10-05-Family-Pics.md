@@ -80,7 +80,7 @@ layout: post
 ### Wife's Toons
 
 ![Krogh](https://lh3.googleusercontent.com/4_RQTGG6QIdQcIhdTOZeVTx3sg0QebyHvgyocH1mj--tP2hYwlomrdHj276y4wpfOcw=w2400)
-### Wife's toon Krogh standing beside a pool of blood
+### Wife's toon Krogh standing beside a pool of blood in a Vampire zone
 
 
 
