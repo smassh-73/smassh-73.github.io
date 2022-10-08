@@ -53,6 +53,12 @@ layout: post
 ![Smassh](https://lh4.googleusercontent.com/IVnt8-7MkH_u2D_D3eB79c5zqxW0SMuxqXrxusVT4_HS-cvSTC2K0-DKX3gsjdxxjZs=w2400)
 ### Smassh (my main)
 
+![Kennn](https://lh4.googleusercontent.com/9O94pemLBfOhZDOvdB-kv6bH2PQoOkqfA4rCpNhT0TRxW9ukeSbOGBI6IJ7jubsoGGo=w2400)
+### Kennn (the photogenic one)
+
+![Brownmouser](https://lh3.googleusercontent.com/WrCqMOP5HWElqWYThvxGXEOi3S-yMqqnBrmRwSs81EVI5Avm_pLDoklw9DKAL0QBKu8=w2400)
+### Brownmouser (Named after my Heart Mouser)
+
 
 
 
