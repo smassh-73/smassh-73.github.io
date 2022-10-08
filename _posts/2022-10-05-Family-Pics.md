@@ -76,6 +76,12 @@ layout: post
 ![Meerlynn](https://lh6.googleusercontent.com/2AHoQ0INuaHVDjrFtReiUYx0j-kiZvkT7cl3dbSJh5yI6rbkY8FkiZEYvIcFv1zjDAc=w2400)
 ### Meerlynn (desinged after our PEW mousers we have had as fur babies)
 
+### __________________________________________________________________________________________
+### Wife's Toons
+
+![Krogh](https://lh3.googleusercontent.com/4_RQTGG6QIdQcIhdTOZeVTx3sg0QebyHvgyocH1mj--tP2hYwlomrdHj276y4wpfOcw=w2400)
+### Wife's toon Krogh standing beside a pool of blood
+
 
 
 
