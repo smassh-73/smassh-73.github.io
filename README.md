@@ -31,32 +31,10 @@ layout: page
 
 
 
-Just fork this [repository](https://github.com/niklasbuschmann/contrast) and adjust the `_config.yml` to use with [Github Pages](https://pages.github.com/) and your page is done.
+Here is the link to Trip Adviser page for the [Red River Valley Verterans Memorial Museum](https://lh4.googleusercontent.com/gLtZAh1kZpKAQQECEiqc7BD5fblr51VuwTh6UtnCWduFCS7GnA5XPmLk3R2IbGPNKo8=w2400) 
 
-## Features
+## It is right next door to the Eifle Tower display (featuring the smaller versions of the Eifle Tower wearing a Cowboy hat)
 
- - supports dark mode on macOS Mojave
- - optional sidebar
- - MathJax support
- - no external ressources
- - included archive page
- - supports pagination
- - feed generation
- - responsive
- - syntax highlighting
- - supports comments via [disqus](https://disqus.com/) or [isso](http://posativ.org/isso/)
-
-## Based on
-
-- [Hyde](https://github.com/poole/hyde)
-- [Minima](https://github.com/jekyll/minima)
-- [Lagrange](https://github.com/LeNPaul/Lagrange)
-- [Font Awesome](http://fontawesome.io/)
-- [KaTeX](https://katex.org/)
-- [Pygments](https://github.com/richleland/pygments-css)
-
-
-
-Note: to enable icons you also need to copy over the `_data` folder.
+![ET](https://lh5.googleusercontent.com/c5o928RfgIwbOVESnfEBm9UrpMopePoo4gys4hs9XfSgBHyc9Pia371WtPrSioD3Elo=w2400)
 
 
