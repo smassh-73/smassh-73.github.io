@@ -25,3 +25,8 @@ categories: media
 
 ## CraCra Mouser Reading a Book
 ![CraCra](https://lh6.googleusercontent.com/2SriTWu6hPoGVhowaXvrrzSx6urdCLm6ZYKlxMgAPHQR3xLBuTqPrJDZM7cyrwmUgdU=w2400)
+
+## Digger Doo
+![DiggerDoo](https://lh3.googleusercontent.com/t6gLScHsG0vZJ-hKZRGJfoMfgVA1zWnG-H1vquGY0eazvKEC1I-QlxOInl7VE0HGHRY=w2400)
+
+
