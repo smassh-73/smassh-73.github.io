@@ -5,8 +5,6 @@ layout: post
 categories: media
 ---
 
-![Swiss Alps](https://user-images.githubusercontent.com/4943215/55412536-edbba180-5567-11e9-9c70-6d33bca3f8ed.jpg)
-
 ![Brownmouser](https://img00.deviantart.net/7bc2/i/2011/349/1/b/little_brown_mouse_pup_by_bryce_schroeder-d4j7wou.png)
 ## Smassh's Heart Mouser
 
