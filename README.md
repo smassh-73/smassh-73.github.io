@@ -7,7 +7,7 @@ layout: page
 ## My Father
 
 
-### My father, Jerry Suitor, was in Vietnam and was a dog handler.
+### My father, Jerry, was in Vietnam and was a Dog Handler.
 
 
 ![Jerry Suitor and Paddy](https://lh5.googleusercontent.com/jb3OxidixkahsHpE-yJ__Q_ADtJSA5kWEZnQVl-JXAh68Vnrke0R0_R5-6LcxB-l6iY=w2400)
