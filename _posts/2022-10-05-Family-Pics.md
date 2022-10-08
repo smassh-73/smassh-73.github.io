@@ -14,7 +14,7 @@ layout: post
 ### Playing with Grandma
 ![Grandma](https://lh6.googleusercontent.com/qlsgIXubiUJgZW7mLlHb9fGbwpwlkHDcGW89tsJ-rE-LCcfovj5kRl-e3KiR_Ape9vY=w2400)
 
-### Family Photo
+### Group Photos with Family and Friends
 ![Family Photo](https://lh6.googleusercontent.com/hcPBdo7NR-S5cltAAwiKX-OKs_AdGdJfyshgxnHiOrtXaVwWmgJIUiHh0zQad82QPhM=w2400)
 ![Family Photo2](https://lh6.googleusercontent.com/0dnjU3ce6SdlfVg6y24GHplTJlixZY_fFPgME0xrnc7NtujlPjWzHCSLQuJa_vTDAk8=w2400)
 ![Family Photo3](https://lh6.googleusercontent.com/cJD5wBXfbqtBaqgRUUn4xH-iut9AD6w5zaaCdQPBw6ZA_62j-I6aqvfLnNrFCKJz5x0=w2400)
