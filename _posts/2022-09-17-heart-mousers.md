@@ -14,9 +14,15 @@ categories: media
 ![Sophia](https://lh3.googleusercontent.com/GBlHGnpK8XR4f28Y4DLs_W6iJOVuy2uPgK1rz5cJ6meVyIjuJn8sSrfforIFGMiRVmM=w2400)
 ## Sophia
 
-## Anykah Hamster
+## Anyka's Heart Hamster
+![Hammie](https://lh3.googleusercontent.com/lvxWUJT9-JGrMnhYHt-2VcUtwJ0X5LrzuIrR2bcISJ9mjZD-Ihkowi-v7Om2NwAdhqg=w2400)
+## Hammie
+
 ![Nora](https://lh3.googleusercontent.com/7Nan9LOWt7F02nljk7iBGuUfjkaEnqHUD09a2MQzWQ63NcWkFsT0umiYlxu_boAqNXM=w2400)
 ## Nora
+
+![Dins Hamster](https://lh4.googleusercontent.com/1aBIb5TCuxIrYPiIQbDKKtdsOsEbI8yO3RX5PEn3LjHK6Ent3zr4cw5SaI1s3b9VWPs=w2400)
+## Din's Hamster
 
 ## Christmas Mousers
 ![ChristmasMousers](https://lh6.googleusercontent.com/IdE6MSiFkxCmUtB1ShFvzOXAExcpXr1hAh4DHyx_KzdtTCoS08W9sMxTmpxJbKNL1Nk=w2400)
