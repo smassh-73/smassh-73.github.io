@@ -45,6 +45,11 @@ layout: post
 
 
 ### __________________________________________________________________________________________
+
+![Wall Paper](https://lh6.googleusercontent.com/Vv0_httpdyb3TgqkC2v8FPHEJt7pPs1QmxP8Q1kiYROQ92YxC5Pa9m21ekivsHrPbzQ=w2400)
+### This is a Wall Paper I got from Wolfgang in the above Father's Day from Kids Picture.  I love it and is my desktop wallpaper on my computer!
+
+### __________________________________________________________________________________________
 ### My Toons
 
 ![Smassh Home](https://lh6.googleusercontent.com/tBqfNGL_rM0SQO2oRmmABs6RrFFyfAhJL_80xsQBYS-rZ_53McaLtec9nhd59X_8i0w=w2400)
