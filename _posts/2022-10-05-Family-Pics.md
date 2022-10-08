@@ -26,23 +26,13 @@ layout: post
 ### __________________________________________________________________________________________
 ### Me and Wife
 ![Me and Wife](https://lh5.googleusercontent.com/jAHdrn9ffUq6HWdqX6xsNmAsn6V2bxwGimBt0wBxIJVXS5gfJOvmJ2bp1ROukfGB1fA=w2400)
-
-### Single line
-
+![Me and Wife2](https://lh5.googleusercontent.com/a4myOKLEmB5d9byRB1ALI3d8kGaeoe0g853YP6S2jvrFZF-AcbyPHN-s29Qvtgjoa6s=w2400)
 
 
 
 
 
-### Heading Two (h3)
 
-> My mom always said life was like a box of chocolates. You never know what you're gonna get.
 
-### Multiline
 
-> What do you get when you cross an insomniac, an unwilling agnostic and a dyslexic?
->
-> You get someone who stays up all night torturing himself mentally over the question of whether or not there's a dog.
->
-> – _Hal Incandenza_
 
