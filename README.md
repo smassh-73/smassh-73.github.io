@@ -31,7 +31,7 @@ layout: page
 
 
 
-Here is the link to Trip Adviser page for the [Red River Valley Verterans Memorial Museum](https://lh4.googleusercontent.com/gLtZAh1kZpKAQQECEiqc7BD5fblr51VuwTh6UtnCWduFCS7GnA5XPmLk3R2IbGPNKo8=w2400) 
+Here is the link to Trip Adviser page for the [Red River Valley Verterans Memorial Museum](https://www.tripadvisor.com/Attraction_Review-g56424-d10444861-Reviews-Red_River_Valley_Veterans_Memorial_Museum-Paris_Texas.html)
 
 ## It is right next door to the Eifle Tower display (featuring the smaller versions of the Eifle Tower wearing a Cowboy hat)
 
