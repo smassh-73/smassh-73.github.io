@@ -5,7 +5,7 @@ layout: post
 categories: media
 ---
 
-![Brownmouser](https://img00.deviantart.net/7bc2/i/2011/349/1/b/little_brown_mouse_pup_by_bryce_schroeder-d4j7wou.png)
+![Brownmouser](https://lh3.googleusercontent.com/DPKzUBUTi_eaYtJgn7arfbFxrBk3p59xLOqeyR509E4x0DVVWdLG08vdb4LFFH0qk8g=w2400)
 ## Smassh's Heart Mouser
 
 ## Images
