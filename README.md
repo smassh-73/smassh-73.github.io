@@ -1,6 +1,6 @@
 ---
-title: "About"
-permalink: "/about/"
+title: "Real Family Items"
+permalink: "/Family/"
 layout: page
 ---
 
