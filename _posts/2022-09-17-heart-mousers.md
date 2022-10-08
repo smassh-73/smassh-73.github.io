@@ -21,3 +21,7 @@ categories: media
 ## Christmas Mousers
 ![ChristmasMousers](https://lh6.googleusercontent.com/IdE6MSiFkxCmUtB1ShFvzOXAExcpXr1hAh4DHyx_KzdtTCoS08W9sMxTmpxJbKNL1Nk=w2400)
 ![Christmasmousers2](https://lh6.googleusercontent.com/12OGr3jRDwM7hbrp6__WlxammZCZaXlnxIz0qQJiFbd-MjPxzGEAeIOx_aOlFNHRZqw=w2400)
+
+
+## CraCra Mouser Reading a Book
+![CraCra](https://lh6.googleusercontent.com/2SriTWu6hPoGVhowaXvrrzSx6urdCLm6ZYKlxMgAPHQR3xLBuTqPrJDZM7cyrwmUgdU=w2400)
