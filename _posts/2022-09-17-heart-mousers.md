@@ -7,8 +7,8 @@ categories: media
 
 ![Swiss Alps](https://user-images.githubusercontent.com/4943215/55412536-edbba180-5567-11e9-9c70-6d33bca3f8ed.jpg)
 
-![Brownmouser](https://user-images.githubusercontent.com/4943215/55412447-bcdb6c80-5567-11e9-8d12-b1e35fd5e50c.jpg)
-## MathJax
+![Brownmouser](asset-Brownmouser.jpg)
+## Smassh's Heart Mouser
 
 You can enable MathJax by setting `mathjax: true` on a page or globally in the `_config.yml`. Some examples:
 
