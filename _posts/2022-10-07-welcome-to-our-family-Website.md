@@ -17,7 +17,7 @@ You can also download a map for the game here  [Game Map][game-map].
 
 And a Parser (to see how much damage you have done) [Game Parser][game-parser].
 
-And there is even a differnt GUI if you do not like the original one that comes with the game.  This one has more customization [Darq-UI][darq-ui]
+And there is even a differnt GUI if you do not like the original one that comes with the game.  This one has more customization and is very popular in game. [Darq-UI][darq-ui]
 
 [ever-quest]: https://www.everquest2.com/home
 [game-map]:   https://maps.eq2interface.com/index.php?action=download
