@@ -16,7 +16,7 @@ categories: media
 
 ## Anyka's Heart Hamster
 
-![Hammie](https://lh5.googleusercontent.com/4WU6xkhh58sTAMd2TBEe4emsDSWr_NxuUqTZ8KMunOSLDdrbfwjV2IwdGWz3ZeE23Mo=w2400)
+![Hammie](https://lh3.googleusercontent.com/_xAzOYQYS6Bwrb9sUJelFYQQ6ipKCeMgR8cDpq8EPQVw9rKxCmEYhUpQOc7cLXidAPI=w2400)
 ## Hammie
 
 ![Nora](https://lh3.googleusercontent.com/7Nan9LOWt7F02nljk7iBGuUfjkaEnqHUD09a2MQzWQ63NcWkFsT0umiYlxu_boAqNXM=w2400)
