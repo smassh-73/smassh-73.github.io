@@ -31,3 +31,6 @@ categories: media
 
 ## Lola
 ![Lola](https://lh5.googleusercontent.com/fefW0ZBF76KTOGEOzBcMtCQG56IB4X38sSVq_v4z-ZFKsyUvcZrwrG62AmU1rxMpFUs=w2400)
+
+## Browning Mouser
+![Browning](https://lh6.googleusercontent.com/vQJrncdQaKTo5BADWq8shtjxDahQ_V7fx5j2ptuyOSas3n0RgJFrc_6hsLJj9KHbbKc=w2400)
