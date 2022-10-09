@@ -157,7 +157,7 @@ layout: post
 ## Krogh in Erudin's Library
 
 ![Yee Haw](https://lh5.googleusercontent.com/uIfTT2bRN4ojkVOSZ3sle4wbldELultWEFffqW-bMg42PID2eJKHvt2ofg3C9D_VPLE=w2400)
-# Yee Haw!!!
+# Yee Haw!!! One of my wife's toons that also shows a view of our Guild Hall in the background
 
 ![Rammigurl](https://lh4.googleusercontent.com/MGk4GMBBZ7FL2kV65Ejb2qCjfKe7589VtJxJc53AZgRk-Z9ky-cZensilUqPbEKcYCI=w2400)
 ## Rammigurl in Vampire zone
