@@ -57,6 +57,12 @@ layout: post
 ## Rezden
 ![Rezden](https://lh4.googleusercontent.com/QpR_M5bM0rKj5ncN2B7sOf7njHDsbmr6VX7AvgBLtYIITCumNcPXWFFTeAAQ3gWclvc=w2400)
 
+### __________________________________________________________________________________________
+
+## Daveey
+![Daveey](https://lh3.googleusercontent.com/EOu8q795CfWaTLpUZqMqzOFzOY_ZoX_YGcq3DKaRmPCRIdijHpv75-4cyzxfMTirxSk=w2400)
+
+
 
 ### __________________________________________________________________________________________
 
@@ -109,7 +115,10 @@ layout: post
 ### Krogh in chains
 
 ![Krogh in GF](https://lh5.googleusercontent.com/Yrz8mGXhBTy-3eoPdRMZ9dOEl1otRdROiSL0gUIN5qiS3zmiYA8dF-71VTuUk5kHBTI=w2400)
-### Krogh in FD
+### Krogh in Greater Faydark
+
+![Krogh's Unrest house](https://lh3.googleusercontent.com/-D27m32eyOCg1WEDOu9yLOiG6fb29z9m_DKL2pwRuGd11nMOhCnJnCFIbfqrPnl7cHE=w2400)
+### Krogh's Unrest house
 
 ### __________________________________________________________________________________________
 ## Our Guild Hall
