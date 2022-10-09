@@ -155,8 +155,24 @@ layout: post
 
 ![Krogh in Erudin's Library](https://lh4.googleusercontent.com/n4kojeEQ7iqt3XeuFjWEBZarYRDZwXtVGAo8m26s053QwQsQ2nsaD6PSu7xiuIwS93A=w2400)
 
+![Yee Haw](https://lh5.googleusercontent.com/uIfTT2bRN4ojkVOSZ3sle4wbldELultWEFffqW-bMg42PID2eJKHvt2ofg3C9D_VPLE=w2400)
+
+![Rammigurl](https://lh4.googleusercontent.com/MGk4GMBBZ7FL2kV65Ejb2qCjfKe7589VtJxJc53AZgRk-Z9ky-cZensilUqPbEKcYCI=w2400)
+## Rammigurl in Vampire zone
+
+![Rommee](https://lh5.googleusercontent.com/2juSonysomHW3V5RUGF5Mxtc3kFHXw9QaL4rHmpZgb2r0f-bN4yadFv_ivnnoi78mH4=w2400)
+## Rommee
+
+![Rommee on Trial](https://lh4.googleusercontent.com/sogqs684_WjD7z5okyqF7AMGOIAHNUH48q835CUZv8bW0amlhYQszuHbu-BL6E5wZ2k=w2400)
+## Rommee on Trial
+
+![Rommee Back view](https://lh5.googleusercontent.com/N15pqYVn0-UwGzLyX3yQHx4jmFPtOTkYeg8Z0mQPtFY8sq47GA5o-B_Toqf964DGa7w=w2400)
+![Rommee Front view](https://lh3.googleusercontent.com/19EXdp3KvkSUl2Jpz-wHKvKJW5nJjIVyo8Ol8w3wE0b2P6rcf0w_48injDltZgtixGQ=w2400)
+
+![Barbeegurl](https://lh5.googleusercontent.com/tq68Bo9Wt_2NpGGZ4-z-Xp16s0_bbPiFj1sjJTBmPYGEn7ZFa92GvFY4zzoJ-adY9Eg=w2400)
+# Barbeegurl!!!
 
 ### __________________________________________________________________________________________
-## Our Guild Hall
-![Guild Hall](https://lh6.googleusercontent.com/7BVU_FbtXRvnn49e8zL38NGC1VrWPpcu3rl8fOUET3uPvkEIYOfP561FzPKo7lAHokw=w2400)
-
+# And last but not lease, Asenath decided to show off our Guild Hall (Dark Shadows) at Christmas time
+![Guild Hall](https://lh3.googleusercontent.com/4iFukL0_LEpTwPKaytZE-LWxH6oQ7LGd8COeUbJ82EvSTfc8kCGYlDaKsu8Ulm6Ysls=w2400)
+![Asenath in Guild Hall at Christmas](https://lh5.googleusercontent.com/ZILThukcUk-L_WuhR7YDxlBxP61_JqZBLBfIem5sLnqKriQ0R2ON0WKFwFvBVo3zMIg=w2400)
