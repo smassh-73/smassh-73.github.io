@@ -7,13 +7,13 @@ layout: page
 ## My Father
 
 
-### My father, Jerry, was in Vietnam and was a Dog Handler.
+### My father, Jerry, was in Vietnam and was a Dog Handler. Click the link to see a website that describes [him and Paddy](http://tcvvm.org/project/jerry-suitor-and-paddy/) at the [Texas Captial Vietnam Vetrans Monument](http://tcvvm.org/tour/documentary/)
 
 
 ![Jerry Suitor and Paddy](https://lh5.googleusercontent.com/jb3OxidixkahsHpE-yJ__Q_ADtJSA5kWEZnQVl-JXAh68Vnrke0R0_R5-6LcxB-l6iY=w2400)
 
 
-### Kat (Alexxander in the Father's Day Pic from the kids) made this picture of my father with his artistic talent. I seriously have no idea how he did this, but I love it and appreciate the time and effort he took in creating it!  Looks very simular to the abover picture doesn't it???
+### Alexxander in the Father's Day Pic from the kids) made this picture of my father with his artistic talent. I seriously have no idea how he did this, but I love it and appreciate the time and effort he took in creating it!  Looks very simular to the abover picture doesn't it???
 
 
 ![Kats Pic](https://lh6.googleusercontent.com/BmFQD33jSri8wywgumlu52v29egWgP_9ZZkv0HJw7Vd9RPSMiyFdwxFA1o1laFWjW8M=w2400)
