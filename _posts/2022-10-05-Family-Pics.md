@@ -115,8 +115,8 @@ layout: post
 ![Krogh](https://lh3.googleusercontent.com/4_RQTGG6QIdQcIhdTOZeVTx3sg0QebyHvgyocH1mj--tP2hYwlomrdHj276y4wpfOcw=w2400)
 ### Wife's toon Krogh standing beside a pool of blood in a Vampire zone
 
-![Krogh in the Moonlight](https://lh5.googleusercontent.com/gzzV1PIE9JCe8uMuQ_Jpgt2GtJOLn5_tFnZJUEPOFv_DXKARcsgdL_Wezz5UzY5wdKQ=w2400)
-### Krogh in the Moonlight
+![Krogh in Echo Caverns](https://lh5.googleusercontent.com/gzzV1PIE9JCe8uMuQ_Jpgt2GtJOLn5_tFnZJUEPOFv_DXKARcsgdL_Wezz5UzY5wdKQ=w2400)
+### Krogh in Echo Caverns
 
 ![Krogh at Unrest](https://lh5.googleusercontent.com/8bsmMgwykaxzTHuSWiVYqD4K6nYo3Vytxyp1Lw7jdQYtyaTooQTdEMhTOBCifbwFop0=w2400)
 ### Krogh at Unrest
