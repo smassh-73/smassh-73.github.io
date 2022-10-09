@@ -14,13 +14,13 @@ categories: media
 ![Sophia](https://lh3.googleusercontent.com/GBlHGnpK8XR4f28Y4DLs_W6iJOVuy2uPgK1rz5cJ6meVyIjuJn8sSrfforIFGMiRVmM=w2400)
 ## Sophia
 
-## Anyka's Heart Hamster
+## Anykah's Heart Hamster
 
 ![Hammie](https://lh3.googleusercontent.com/_xAzOYQYS6Bwrb9sUJelFYQQ6ipKCeMgR8cDpq8EPQVw9rKxCmEYhUpQOc7cLXidAPI=w2400)
 ## Hammie
 
 ![Nora](https://lh3.googleusercontent.com/7Nan9LOWt7F02nljk7iBGuUfjkaEnqHUD09a2MQzWQ63NcWkFsT0umiYlxu_boAqNXM=w2400)
-## Nora
+## Anykah's currnt Hamster Nora
 
 ## Rezden's Hamster
 ![Dins Hamster](https://lh4.googleusercontent.com/1aBIb5TCuxIrYPiIQbDKKtdsOsEbI8yO3RX5PEn3LjHK6Ent3zr4cw5SaI1s3b9VWPs=w2400)
