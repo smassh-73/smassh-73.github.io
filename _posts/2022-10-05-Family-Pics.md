@@ -8,6 +8,7 @@ layout: post
 
 ![Group photo](https://lh3.googleusercontent.com/UlKznoy1pb3QMr4xSKi3jeJxsO37l1EZU48ybeqGTssPqZbbG0tADbOs5F7ZZEO2jos=w2400)
 ![Family Photo3](https://lh6.googleusercontent.com/cJD5wBXfbqtBaqgRUUn4xH-iut9AD6w5zaaCdQPBw6ZA_62j-I6aqvfLnNrFCKJz5x0=w2400)
+![Family Gathering](https://lh5.googleusercontent.com/G5VoJ35jQ1ZccAJizo8PCj8BnoB4IPoSDDUjnB2d6FjNTdI7lhXIQZhZOjjt2S4HqNo=w2400)
 
 ### Father's Day from the Kids
 ![FD Pic](https://lh3.googleusercontent.com/7Evl3bUnKuDko8nne2oaSRuVjgW2Tfwxp9pEYe-tkJbt0utlZWF6B1eb30DnRmuw_G4=w2400)
@@ -25,6 +26,8 @@ layout: post
 
 ![Family Photo4](https://lh3.googleusercontent.com/CKHZSan3IZ6INQwSpPujzo2tQ01u1MG173JY_rtHZix1Z49lP-UbyP2atWDBVOBxuJE=w2400)
 ![Family Photo5](https://lh6.googleusercontent.com/04M6YLpOiNka6sa57tTF0uACiUYDtougkCQmqiLxojqG1Mdfx_2taxpUTAUdeKvDDFc=w2400)
+![The Gathering](https://lh6.googleusercontent.com/v4I4vaQLRQtcC0axKN6EHfuz_QoHZ4Tcr52r8mvhKMS-3OBUpeVE955XMbES37phAAA=w2400)
+![Krogh and Grasshopper at Unrest](https://lh3.googleusercontent.com/U-5NMrHirsCkyv6GQzr-Xt4B0wkl5g7xzdoEoZGVtfEPEpGFEu0WXz_EvuP6oU01hn8=w2400)
 
 ### __________________________________________________________________________________________
 ### Halloween Pictures
@@ -43,6 +46,8 @@ layout: post
 ### Anykah and Barbeegurl
 ![Wife and Daughter](https://lh6.googleusercontent.com/fZ1t6mfZ2XI9YfumHOGohx4nuvYdfMnvlrnQcQD2k7tHoIea_5aUa1zVTnd9Vr1C0D8=w2400)
 
+### Anykah and Krogh in Krogh's house
+![Anykah and Krogh in house](https://lh6.googleusercontent.com/FCWkTZ3-3JBjd1eSkx8A1ohtebopBGtfTPQ14A2WOK-zPkhgA3B2CF1FWXA8TVEg8_g=w2400)
 
 ### __________________________________________________________________________________________
 ### Anykah
@@ -115,6 +120,9 @@ layout: post
 ![Krogh](https://lh3.googleusercontent.com/4_RQTGG6QIdQcIhdTOZeVTx3sg0QebyHvgyocH1mj--tP2hYwlomrdHj276y4wpfOcw=w2400)
 ### Wife's toon Krogh standing beside a pool of blood in a Vampire zone
 
+![Krogh in the Moon Light](https://lh5.googleusercontent.com/wFCuv5D57dQG4nQ4AdDHTA5b6WPjDxrs7n9oRoz--g08FKrxWaNFWcQk-ir7xD754UM=w2400)
+### Krogh in the Moon Light
+
 ![Krogh in Echo Caverns](https://lh5.googleusercontent.com/gzzV1PIE9JCe8uMuQ_Jpgt2GtJOLn5_tFnZJUEPOFv_DXKARcsgdL_Wezz5UzY5wdKQ=w2400)
 ### Krogh in Echo Caverns
 
@@ -129,6 +137,24 @@ layout: post
 
 ![Krogh's Unrest house](https://lh3.googleusercontent.com/-D27m32eyOCg1WEDOu9yLOiG6fb29z9m_DKL2pwRuGd11nMOhCnJnCFIbfqrPnl7cHE=w2400)
 ### Krogh's Unrest house
+
+![Krogh watching the Sun rise](https://lh4.googleusercontent.com/6ygi1V-DR5dyw-atmNrQtcutVfgtz0wMkV8hH-x62nU4XyvLd2X3sQrrE86d3Tch8Oc=w2400)
+### Krogh watching the Sun rise
+
+![Krogh at Dusk](https://lh6.googleusercontent.com/Bz1EMr15UTV92NINvg5VVAYv1Jjx25GR-U4kJPKR9soB-SgpaiWlRpCkRmUaYKwVRiI=w2400)
+### Krogh at Dusk
+
+![Krogh in the Moonlight 2](https://lh6.googleusercontent.com/9dpTaRbgrhhHN7YOiY-nJngsPA3uTAk0g5QJb2XIbWAsHWrOUabVilKeZ-zkPKphsAM=w2400)
+### Krogh watching the Moon
+
+![Krogh's Unrest House2](https://lh5.googleusercontent.com/Vv_Rc3P44n2EMep41QMzQUQz2eReYNNOINVxbBgcsTVufsbd8DVCoAUvLmvm9ODUbOI=w2400)
+### Krogh's Unrest House 2
+
+![Krogh Home](https://lh6.googleusercontent.com/w0bsyrArzmuMBZyaxyGYCF4ApbvdMSl26c3Xfa9I7i82mdEwcCC7uzG9HPprAEgV1JA=w2400)
+### Krogh's Home
+
+![Krogh in Erudin's Library](https://lh4.googleusercontent.com/n4kojeEQ7iqt3XeuFjWEBZarYRDZwXtVGAo8m26s053QwQsQ2nsaD6PSu7xiuIwS93A=w2400)
+
 
 ### __________________________________________________________________________________________
 ## Our Guild Hall
