@@ -21,7 +21,7 @@ layout: post
 ![Family Photo2](https://lh6.googleusercontent.com/0dnjU3ce6SdlfVg6y24GHplTJlixZY_fFPgME0xrnc7NtujlPjWzHCSLQuJa_vTDAk8=w2400)
 
 
-### __________________________________________________________________________________________
+### ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 ### Grouping with Family
 
 ![Family Photo4](https://lh3.googleusercontent.com/CKHZSan3IZ6INQwSpPujzo2tQ01u1MG173JY_rtHZix1Z49lP-UbyP2atWDBVOBxuJE=w2400)
@@ -29,13 +29,13 @@ layout: post
 ![The Gathering](https://lh6.googleusercontent.com/v4I4vaQLRQtcC0axKN6EHfuz_QoHZ4Tcr52r8mvhKMS-3OBUpeVE955XMbES37phAAA=w2400)
 ![Krogh and Grasshopper at Unrest](https://lh3.googleusercontent.com/U-5NMrHirsCkyv6GQzr-Xt4B0wkl5g7xzdoEoZGVtfEPEpGFEu0WXz_EvuP6oU01hn8=w2400)
 
-### __________________________________________________________________________________________
+### ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 ### Halloween Pictures
 ![Holiday](https://lh3.googleusercontent.com/9DsFLLRGyErU8kHGak-0ZvLuvKVwphoo1-otrQUpISPISb7n4hxRpRuWDALYQhOgGpo=w2400)
 ![Halloween](https://lh4.googleusercontent.com/YrIgpvsERU75mJ2MVeIccdM3lXrkrxHb9jVYMozywTl1N-deXGvRcB63BdU0qmSl8j8=w2400)
 ![Halloween2](https://lh6.googleusercontent.com/BT_lQHh45o7DuxxMUr3Tqdmx-TmbHP0FZjuHX7-97LqtLydEteBGNSiNuaMwbiR9gK4=w2400)
 
-### __________________________________________________________________________________________
+### ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 ### Wife and I
 ![Me and Wife](https://lh5.googleusercontent.com/jAHdrn9ffUq6HWdqX6xsNmAsn6V2bxwGimBt0wBxIJVXS5gfJOvmJ2bp1ROukfGB1fA=w2400)
 ![Me and Wife2](https://lh5.googleusercontent.com/a4myOKLEmB5d9byRB1ALI3d8kGaeoe0g853YP6S2jvrFZF-AcbyPHN-s29Qvtgjoa6s=w2400)
