@@ -82,7 +82,7 @@ layout: post
 ### __________________________________________________________________________________________
 
 ![Wall Paper](https://lh6.googleusercontent.com/Vv0_httpdyb3TgqkC2v8FPHEJt7pPs1QmxP8Q1kiYROQ92YxC5Pa9m21ekivsHrPbzQ=w2400)
-### This is a Wall Paper I got from Wolfganng in the above Father's Day from Kids Picture.  I love it and is my desktop wallpaper on my computer!
+### This is a Wall Paper I got from Daveey.  I love it and is my desktop wallpaper on my computer!
 
 ### __________________________________________________________________________________________
 ### My Toons
