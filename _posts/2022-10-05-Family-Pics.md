@@ -46,7 +46,7 @@ layout: post
 ### Anykah and Barbeegurl
 ![Wife and Daughter](https://lh6.googleusercontent.com/fZ1t6mfZ2XI9YfumHOGohx4nuvYdfMnvlrnQcQD2k7tHoIea_5aUa1zVTnd9Vr1C0D8=w2400)
 
-### Anykah and Krogh in Krogh's house
+### Anykah and Krogh at Krogh's house
 ![Anykah and Krogh in house](https://lh6.googleusercontent.com/FCWkTZ3-3JBjd1eSkx8A1ohtebopBGtfTPQ14A2WOK-zPkhgA3B2CF1FWXA8TVEg8_g=w2400)
 
 ### __________________________________________________________________________________________
