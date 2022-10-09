@@ -4,25 +4,29 @@ layout: post
 ---
 
 
-## FAMILY GROUP PICTURES 
+# FAMILY GROUP PICTURES 
 
 ![Group photo](https://lh3.googleusercontent.com/UlKznoy1pb3QMr4xSKi3jeJxsO37l1EZU48ybeqGTssPqZbbG0tADbOs5F7ZZEO2jos=w2400)
 ![Family Photo3](https://lh6.googleusercontent.com/cJD5wBXfbqtBaqgRUUn4xH-iut9AD6w5zaaCdQPBw6ZA_62j-I6aqvfLnNrFCKJz5x0=w2400)
 ![Family Gathering](https://lh5.googleusercontent.com/G5VoJ35jQ1ZccAJizo8PCj8BnoB4IPoSDDUjnB2d6FjNTdI7lhXIQZhZOjjt2S4HqNo=w2400)
 
 ### Father's Day from the Kids
+
 ![FD Pic](https://lh3.googleusercontent.com/7Evl3bUnKuDko8nne2oaSRuVjgW2Tfwxp9pEYe-tkJbt0utlZWF6B1eb30DnRmuw_G4=w2400)
 
 ### Playing with Grandma at Halloween
+
 ![Grandma](https://lh6.googleusercontent.com/qlsgIXubiUJgZW7mLlHb9fGbwpwlkHDcGW89tsJ-rE-LCcfovj5kRl-e3KiR_Ape9vY=w2400)
 
 ### Group Photos with Family and Friends
+
 ![Family Photo](https://lh6.googleusercontent.com/hcPBdo7NR-S5cltAAwiKX-OKs_AdGdJfyshgxnHiOrtXaVwWmgJIUiHh0zQad82QPhM=w2400)
 ![Family Photo2](https://lh6.googleusercontent.com/0dnjU3ce6SdlfVg6y24GHplTJlixZY_fFPgME0xrnc7NtujlPjWzHCSLQuJa_vTDAk8=w2400)
 
 
 ## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 
+### Family Grouping
 
 ![Family Photo4](https://lh3.googleusercontent.com/CKHZSan3IZ6INQwSpPujzo2tQ01u1MG173JY_rtHZix1Z49lP-UbyP2atWDBVOBxuJE=w2400)
 ![Family Photo5](https://lh6.googleusercontent.com/04M6YLpOiNka6sa57tTF0uACiUYDtougkCQmqiLxojqG1Mdfx_2taxpUTAUdeKvDDFc=w2400)
@@ -32,14 +36,15 @@ layout: post
 ## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 
 ### Halloween Pictures
+
 ![Holiday](https://lh3.googleusercontent.com/9DsFLLRGyErU8kHGak-0ZvLuvKVwphoo1-otrQUpISPISb7n4hxRpRuWDALYQhOgGpo=w2400)
 ![Halloween](https://lh4.googleusercontent.com/YrIgpvsERU75mJ2MVeIccdM3lXrkrxHb9jVYMozywTl1N-deXGvRcB63BdU0qmSl8j8=w2400)
 ![Halloween2](https://lh6.googleusercontent.com/BT_lQHh45o7DuxxMUr3Tqdmx-TmbHP0FZjuHX7-97LqtLydEteBGNSiNuaMwbiR9gK4=w2400)
 
 ## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 
-### Grouping with Family
 ### Wife and I
+
 ![Me and Wife](https://lh5.googleusercontent.com/jAHdrn9ffUq6HWdqX6xsNmAsn6V2bxwGimBt0wBxIJVXS5gfJOvmJ2bp1ROukfGB1fA=w2400)
 ![Me and Wife2](https://lh5.googleusercontent.com/a4myOKLEmB5d9byRB1ALI3d8kGaeoe0g853YP6S2jvrFZF-AcbyPHN-s29Qvtgjoa6s=w2400)
 ![Me and Wife3](https://lh3.googleusercontent.com/J2BITDgkKjKzpr5s7D3w5teU6icKlx0yQiAnlq3htrNkgu-B_38Dj20KYKPlgNSYieg=w2400)
@@ -47,9 +52,12 @@ layout: post
 
 ## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________ 
 
+### Anykah and Barbeegurl
+
 ![Wife and Daughter](https://lh6.googleusercontent.com/fZ1t6mfZ2XI9YfumHOGohx4nuvYdfMnvlrnQcQD2k7tHoIea_5aUa1zVTnd9Vr1C0D8=w2400)
 
 ### Anykah and Krogh at Krogh's house
+
 ![Anykah and Krogh in house](https://lh6.googleusercontent.com/FCWkTZ3-3JBjd1eSkx8A1ohtebopBGtfTPQ14A2WOK-zPkhgA3B2CF1FWXA8TVEg8_g=w2400)
 
 ## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
@@ -63,12 +71,14 @@ layout: post
 
 ## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 
-## Rezden
+### Rezden
+
 ![Rezden](https://lh4.googleusercontent.com/QpR_M5bM0rKj5ncN2B7sOf7njHDsbmr6VX7AvgBLtYIITCumNcPXWFFTeAAQ3gWclvc=w2400)
 
 ## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 
 ## Daveey
+
 ![Daveey](https://lh3.googleusercontent.com/EOu8q795CfWaTLpUZqMqzOFzOY_ZoX_YGcq3DKaRmPCRIdijHpv75-4cyzxfMTirxSk=w2400)
 ### Daveey at his Vacrul House
 
@@ -83,12 +93,14 @@ layout: post
 
 ## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 
+### Wall Paper
+
 ![Wall Paper](https://lh6.googleusercontent.com/Vv0_httpdyb3TgqkC2v8FPHEJt7pPs1QmxP8Q1kiYROQ92YxC5Pa9m21ekivsHrPbzQ=w2400)
 ### This is a Wall Paper I got from Daveey.  I love it, and it is my desktop wallpaper on my computer!
 
 ## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 
-### My Toons
+# My Toons
 
 ![Smassh Home](https://lh6.googleusercontent.com/tBqfNGL_rM0SQO2oRmmABs6RrFFyfAhJL_80xsQBYS-rZ_53McaLtec9nhd59X_8i0w=w2400)
 ### Smassh's House
@@ -118,6 +130,8 @@ layout: post
 ### Meerlynn (desinged after our PEW mousers we have had as fur babies)
 
 ## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
+
+## Wife's Toons
 
 ![Krogh](https://lh3.googleusercontent.com/4_RQTGG6QIdQcIhdTOZeVTx3sg0QebyHvgyocH1mj--tP2hYwlomrdHj276y4wpfOcw=w2400)
 ### Wife's toon Krogh standing beside a pool of blood in a Vampire zone
@@ -176,9 +190,9 @@ layout: post
 ![Barbeegurl](https://lh5.googleusercontent.com/tq68Bo9Wt_2NpGGZ4-z-Xp16s0_bbPiFj1sjJTBmPYGEn7ZFa92GvFY4zzoJ-adY9Eg=w2400)
 # Barbeegurl!!!
 
-### ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
+## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 
 # And last but not lease, Asenath decided to show off our Guild Hall (Dark Shadows) at Christmas time
 ![Guild Hall](https://lh3.googleusercontent.com/4iFukL0_LEpTwPKaytZE-LWxH6oQ7LGd8COeUbJ82EvSTfc8kCGYlDaKsu8Ulm6Ysls=w2400)
 ![Asenath in Guild Hall at Christmas](https://lh5.googleusercontent.com/ZILThukcUk-L_WuhR7YDxlBxP61_JqZBLBfIem5sLnqKriQ0R2ON0WKFwFvBVo3zMIg=w2400)
-## Wife's first toon
+# Wife's first toon
