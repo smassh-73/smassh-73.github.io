@@ -1,6 +1,6 @@
 title: "Smassh and Family Webpage"
 author: "Family Gaming and Mousers Page"
-description: "Check out the two Icons on the right for the tools used to create this free starting theme from Jekyll and hosted by Github"
+description: "Check out the two icons for the tools I used to make this website"
 lang: "en"
 excerpt_separator: "\n\n\n"
 date_format: "%B %d, %Y"
@@ -22,7 +22,4 @@ external:                  # shows a footer with social links - for available ic
 
   - {title: Github, icon: github, url: "https://github.com/"}
   - {title: Jekyll,icon: github, url: "https://jekyllthemes.io/free/"}
-
-comments:
-disqus_shortname:    "see https://disqus.com/"
-isso_domain:          "see https://posativ.org/isso/"
+  
