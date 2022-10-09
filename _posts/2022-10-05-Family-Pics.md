@@ -99,6 +99,18 @@ layout: post
 ![Krogh](https://lh3.googleusercontent.com/4_RQTGG6QIdQcIhdTOZeVTx3sg0QebyHvgyocH1mj--tP2hYwlomrdHj276y4wpfOcw=w2400)
 ### Wife's toon Krogh standing beside a pool of blood in a Vampire zone
 
+![Krogh in the Moonlight](https://lh5.googleusercontent.com/gzzV1PIE9JCe8uMuQ_Jpgt2GtJOLn5_tFnZJUEPOFv_DXKARcsgdL_Wezz5UzY5wdKQ=w2400)
+### Krogh in the Moonlight
+
+![Krogh at Unrest](https://lh5.googleusercontent.com/8bsmMgwykaxzTHuSWiVYqD4K6nYo3Vytxyp1Lw7jdQYtyaTooQTdEMhTOBCifbwFop0=w2400)
+### Krogh at Unrest
+
+![Krogh in chains](https://lh6.googleusercontent.com/KQ_kyySFgFYLxStYN-ox2iXYbxxpV2El0ABYsZZbiEwAZIIuCXA_D1Gmi1_ARIOItmY=w2400)
+### Krogh in chains
+
+![Krogh in GF](https://lh5.googleusercontent.com/Yrz8mGXhBTy-3eoPdRMZ9dOEl1otRdROiSL0gUIN5qiS3zmiYA8dF-71VTuUk5kHBTI=w2400)
+### Krogh in FD
+
 ### __________________________________________________________________________________________
 ## Our Guild Hall
 ![Guild Hall](https://lh6.googleusercontent.com/7BVU_FbtXRvnn49e8zL38NGC1VrWPpcu3rl8fOUET3uPvkEIYOfP561FzPKo7lAHokw=w2400)
