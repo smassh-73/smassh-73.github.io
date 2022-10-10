@@ -155,7 +155,7 @@ layout: post
 ### Krogh's Unrest house
 
 ![Krogh watching the Sun rise](https://lh4.googleusercontent.com/6ygi1V-DR5dyw-atmNrQtcutVfgtz0wMkV8hH-x62nU4XyvLd2X3sQrrE86d3Tch8Oc=w2400)
-### Krogh watching the Sun rise
+### Krogh watching the sunrise
 
 ![Krogh at Dusk](https://lh6.googleusercontent.com/Bz1EMr15UTV92NINvg5VVAYv1Jjx25GR-U4kJPKR9soB-SgpaiWlRpCkRmUaYKwVRiI=w2400)
 ### Krogh at Dusk
@@ -179,13 +179,13 @@ layout: post
 ## Rammigurl in Vampire zone
 
 ![Rommee](https://lh5.googleusercontent.com/2juSonysomHW3V5RUGF5Mxtc3kFHXw9QaL4rHmpZgb2r0f-bN4yadFv_ivnnoi78mH4=w2400)
-## Rommee
+## Romee
 
 ![Rommee on Trial](https://lh4.googleusercontent.com/sogqs684_WjD7z5okyqF7AMGOIAHNUH48q835CUZv8bW0amlhYQszuHbu-BL6E5wZ2k=w2400)
-## Rommee on Trial
+## Romee on Trial
 
-![Rommee Back view](https://lh5.googleusercontent.com/N15pqYVn0-UwGzLyX3yQHx4jmFPtOTkYeg8Z0mQPtFY8sq47GA5o-B_Toqf964DGa7w=w2400)
-![Rommee Front view](https://lh3.googleusercontent.com/19EXdp3KvkSUl2Jpz-wHKvKJW5nJjIVyo8Ol8w3wE0b2P6rcf0w_48injDltZgtixGQ=w2400)
+![Romee Back view](https://lh5.googleusercontent.com/N15pqYVn0-UwGzLyX3yQHx4jmFPtOTkYeg8Z0mQPtFY8sq47GA5o-B_Toqf964DGa7w=w2400)
+![Romee Front view](https://lh3.googleusercontent.com/19EXdp3KvkSUl2Jpz-wHKvKJW5nJjIVyo8Ol8w3wE0b2P6rcf0w_48injDltZgtixGQ=w2400)
 
 ![Barbeegurl](https://lh5.googleusercontent.com/tq68Bo9Wt_2NpGGZ4-z-Xp16s0_bbPiFj1sjJTBmPYGEn7ZFa92GvFY4zzoJ-adY9Eg=w2400)
 # Barbeegurl!!!
