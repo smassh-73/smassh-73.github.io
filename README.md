@@ -13,7 +13,7 @@ layout: page
 ![Jerry Suitor and Paddy](https://lh5.googleusercontent.com/jb3OxidixkahsHpE-yJ__Q_ADtJSA5kWEZnQVl-JXAh68Vnrke0R0_R5-6LcxB-l6iY=w2400)
 
 
-### Alexxander in the Father's Day Pic from the kids made this picture of my father with his artistic talent. I seriously have no idea how he did this, but I love it and appreciate the time and effort he took in creating it!  Looks very simular to the above picture doesn't it???
+### Alexxander in the Father's Day Pic from the kids made this picture of my father with his artistic talent. I seriously have no idea how he did this, but I love it and appreciate the time and effort he took in creating it!  Looks very similar to the above picture doesn't it???
 
 
 ![Kats Pic](https://lh6.googleusercontent.com/BmFQD33jSri8wywgumlu52v29egWgP_9ZZkv0HJw7Vd9RPSMiyFdwxFA1o1laFWjW8M=w2400)
@@ -33,7 +33,7 @@ layout: page
 
 Here is the link to Trip Adviser page for the [Red River Valley Verterans Memorial Museum](https://www.tripadvisor.com/Attraction_Review-g56424-d10444861-Reviews-Red_River_Valley_Veterans_Memorial_Museum-Paris_Texas.html)
 
-## It is right next door to the Eiffle Tower display (featuring the smaller versions of the Eiffle Tower wearing a Cowboy hat)
+## It is right next door to the Eiffle Tower display (featuring the smaller version of the Eiffle Tower wearing a Cowboy hat).
 
 ![ET](https://lh5.googleusercontent.com/c5o928RfgIwbOVESnfEBm9UrpMopePoo4gys4hs9XfSgBHyc9Pia371WtPrSioD3Elo=w2400)
 
