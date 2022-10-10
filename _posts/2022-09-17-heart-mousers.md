@@ -4,6 +4,11 @@ mathjax: true
 layout: post
 categories: media
 ---
+
+## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
+
+# Heart Mousers and Hamsters
+
 ## Smassh's Heart Mouser
 
 ![Brownmouser](https://lh6.googleusercontent.com/Ihq9RBOLewfAxtWLtTynRSkNcnK6yFSUwXq8XSku37Mk68F2GRqRvA40JIHZJ-IfWFc=w2400)
@@ -19,12 +24,20 @@ categories: media
 ![Hammie](https://lh3.googleusercontent.com/_xAzOYQYS6Bwrb9sUJelFYQQ6ipKCeMgR8cDpq8EPQVw9rKxCmEYhUpQOc7cLXidAPI=w2400)
 ## Hammie
 
+## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
+
+# Current Mousers and Hamsters
+
 ![Nora](https://lh3.googleusercontent.com/7Nan9LOWt7F02nljk7iBGuUfjkaEnqHUD09a2MQzWQ63NcWkFsT0umiYlxu_boAqNXM=w2400)
-## Anykah's currnt Hamster Nora
+## Anykah's current Hamster Nora
 
 ## Rezden's Hamster
 ![Dins Hamster](https://lh4.googleusercontent.com/1aBIb5TCuxIrYPiIQbDKKtdsOsEbI8yO3RX5PEn3LjHK6Ent3zr4cw5SaI1s3b9VWPs=w2400)
 ## Kuma
+
+## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
+
+## Some of our past fur babies
 
 ## Christmas Mousers
 ![ChristmasMousers](https://lh6.googleusercontent.com/IdE6MSiFkxCmUtB1ShFvzOXAExcpXr1hAh4DHyx_KzdtTCoS08W9sMxTmpxJbKNL1Nk=w2400)
