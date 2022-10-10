@@ -1,5 +1,5 @@
 ---
-title:  "Family Pics"
+title:  "Gaming Pics"
 layout: post
 ---
 
