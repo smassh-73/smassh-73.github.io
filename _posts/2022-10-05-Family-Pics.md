@@ -195,7 +195,7 @@ layout: post
 
 ## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 
-# And last but not lease, Asenath decided to show off our Guild Hall (Dark Shadows) at Christmas time
+# And last but not least, Asenath decided to show off our Guild Hall (Dark Shadows) at Christmas time
 ![Guild Hall](https://lh3.googleusercontent.com/4iFukL0_LEpTwPKaytZE-LWxH6oQ7LGd8COeUbJ82EvSTfc8kCGYlDaKsu8Ulm6Ysls=w2400)
 ![Asenath in Guild Hall at Christmas](https://lh5.googleusercontent.com/ZILThukcUk-L_WuhR7YDxlBxP61_JqZBLBfIem5sLnqKriQ0R2ON0WKFwFvBVo3zMIg=w2400)
 # Wife's first toon
