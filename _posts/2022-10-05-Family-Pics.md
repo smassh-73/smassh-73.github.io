@@ -58,7 +58,7 @@ layout: post
 
 ### Anykah and Krogh at Krogh's house
 
-![Anykah and Krogh in house](https://lh6.googleusercontent.com/FCWkTZ3-3JBjd1eSkx8A1ohtebopBGtfTPQ14A2WOK-zPkhgA3B2CF1FWXA8TVEg8_g=w2400)
+[![Anykah and Krogh in house]](https://lh6.googleusercontent.com/FCWkTZ3-3JBjd1eSkx8A1ohtebopBGtfTPQ14A2WOK-zPkhgA3B2CF1FWXA8TVEg8_g=w2400)
 
 ## ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 
