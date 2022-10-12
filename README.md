@@ -13,7 +13,7 @@ layout: page
 ![Jerry Suitor and Paddy](https://lh5.googleusercontent.com/jb3OxidixkahsHpE-yJ__Q_ADtJSA5kWEZnQVl-JXAh68Vnrke0R0_R5-6LcxB-l6iY=w2400)
 
 
-### Alexxander in the Father's Day Pic from the kids made this picture of my father with his artistic talent. He draws with a computer and a mouse.  It is unbelievable how well he does this. I know I could never do it. Love it and appreciate the time and effort he took in creating it!  Looks very similar to the above picture doesn't it???
+### Alexxander in the Father's Day Pic from the kids made this picture of my father with his artistic talent. He draws on the computer using a mouse.  It is unbelievable how well he does this. I know I could never do it. Love it and appreciate the time and effort he took in creating it!  Looks very similar to the above picture doesn't it???
 
 
 ![Kats Pic](https://lh6.googleusercontent.com/BmFQD33jSri8wywgumlu52v29egWgP_9ZZkv0HJw7Vd9RPSMiyFdwxFA1o1laFWjW8M=w2400)
